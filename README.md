@@ -1,7 +1,7 @@
 # Jonás Rodríguez Unanyan
 
 **Computer Engineer (UPM)** | Madrid, Spain  
-[Portfolio](https://jonas-runanyan.github.io/en/) • [LinkedIn](https://www.linkedin.com/in/](https://www.linkedin.com/in/jon%C3%A1s-rodr%C3%ADguez-unanyan-3a6762248/?locale=en-US) • jonasrodriguezunanyan@gmail.com
+[Portfolio](https://jonas-runanyan.github.io/en/) • [LinkedIn](https://www.linkedin.com/in/jon%C3%A1s-rodr%C3%ADguez-unanyan-3a6762248/?locale=en-US) • jonasrodriguezunanyan@gmail.com
 
 ---
 
